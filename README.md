@@ -10,10 +10,10 @@ This comprehensive guide will walk you through legitimate, safe methods to earn 
 ## Why Are Gems Crucial in Brawl Stars?
 In Brawl Stars, Gems serve as a premium currency that unlocks some of the game’s most exciting features. With Gems, you can:
 
--Purchase exclusive skins to personalize your Brawlers.
--Unlock rewards in the premium Brawl Pass.
--Access in-game offers like Coins, Power Points, and Boxes.
--Speed up game progression by skipping wait times.
+- Purchase exclusive skins to personalize your Brawlers.
+- Unlock rewards in the premium Brawl Pass.
+- Access in-game offers like Coins, Power Points, and Boxes.
+- Speed up game progression by skipping wait times.
 Because of their versatility, players are always on the lookout for reliable ways to get free gems Brawl Stars and enhance their experience without spending real money.
 
 ## How to Get Free Gems Brawl Stars Legitimately
@@ -47,9 +47,9 @@ When searching for free gems Brawl Stars, you might encounter sites or apps clai
 
 How to Spot Scams:
 
--Avoid platforms that ask for your account credentials.
--Steer clear of websites claiming to provide “unlimited Gems instantly.”
--Stick to trusted sources and methods like those listed here.
+- Avoid platforms that ask for your account credentials.
+- Steer clear of websites claiming to provide “unlimited Gems instantly.”
+- Stick to trusted sources and methods like those listed here.
 
 ## Tips for Maximizing Free Gems
 ### 1. Complete Daily Quests Consistently
